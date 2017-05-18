@@ -1,0 +1,2 @@
+# wgs
+EXPLOSÃO DE MOEDAS LBRY (LBC)
